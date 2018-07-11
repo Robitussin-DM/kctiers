@@ -1,0 +1,2 @@
+# Kraken Coin
+Kraken Coin
